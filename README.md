@@ -1,4 +1,4 @@
-## Welcome to URI Online Judge - Accepted Solutions Page - 2020
+## Welcome to URI Online Judge - Accepted Solutions - 2020
 
 Please don't copy any code, just get some idea and hints for solve the problem. But still You can use the all the codes for learning purpose.
 
