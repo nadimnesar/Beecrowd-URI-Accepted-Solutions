@@ -11,4 +11,4 @@ If you have any doubts or problem, please create any issues or feel free to cont
 Email: neasr15-13636@diu.edu.bd  <br/>
 Facebook: https://www.facebook.com/nadim.nesar <br/>
 LinkedIn: https://www.linkedin.com/in/nadimnesar/ <br/>
-Instagram: https://www.instagram.com/nadim_nesar/
+Instagram: https://www.instagram.com/nadimnesar/
