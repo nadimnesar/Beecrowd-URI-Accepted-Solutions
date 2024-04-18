@@ -10,4 +10,3 @@ If you have any doubts or problem, please create any issues or feel free to cont
 
 Email: nadimnesar.cse@gmail.com  <br/>
 LinkedIn: https://www.linkedin.com/in/nadimnesar/ <br/>
-Instagram: https://www.instagram.com/nadimnesar/
